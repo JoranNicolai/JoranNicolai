@@ -1,2 +1,2 @@
-# Portofolio_JoranDani-l
+# Portofolio_JoranDaniël
 Portofolio van Joran Daniël
